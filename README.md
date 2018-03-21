@@ -1,0 +1,2 @@
+# vybersiskolu
+jebem picu
